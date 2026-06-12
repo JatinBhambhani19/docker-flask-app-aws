@@ -1,1 +1,1 @@
-Project Screenshots
+Project screenshots uploaded successfully.
